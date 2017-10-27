@@ -1,5 +1,9 @@
 # UX-UI
 
 Rafael Guimarães
-Designer web
+- Designer web
+- Animador
+- Ilustrador
+
+
 
