@@ -82,6 +82,7 @@ Rafael Guimarães
 	- Criação de peças gráficas para campanhas publicitárias e Design de Marcas corporativas.
 
 **Experiência Complementar**
+	
 	- Independente
 		- Ilustrador de HQ  - 10/2017
 		- Quadrinhos Eclesiástico vol 3 - Desenho, arte-final e cor
