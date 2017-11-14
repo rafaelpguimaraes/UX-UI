@@ -83,14 +83,14 @@ Rafael Guimarães
 
 **Experiência Complementar**
 	
-	- Independente
-		- Ilustrador de HQ  - 10/2017
-		- Quadrinhos Eclesiástico vol 3 - Desenho, arte-final e cor
+- Independente
+	- Ilustrador de HQ  - 10/2017
+	- Quadrinhos Eclesiástico vol 3 - Desenho, arte-final e cor
 
 	
-	- Pólen Estúdio
-		- **Supervisor de Animação** - 2013/2014
-		- Produção do curta “Meu Melhor Amigo” de Laly Cataguases. 15 minutos - Financiado pela Lei Municipal de Incentivo à 	Cultura;
-		- Supervisão de animação, animador, modelagem e pós-produção.
+- Pólen Estúdio
+	- **Supervisor de Animação** - 2013/2014
+	- Produção do curta “Meu Melhor Amigo” de Laly Cataguases. 15 minutos - Financiado pela Lei Municipal de Incentivo à 	Cultura;
+	- Supervisão de animação, animador, modelagem e pós-produção.
 
 
